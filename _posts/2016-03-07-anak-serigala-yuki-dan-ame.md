@@ -4,7 +4,6 @@ title: Anak Serigala Yuki dan Ame
 subtitle: Perjuangan sang ibu untuk anak-anaknya
 tags: [ulasan, film]
 ---
-
 Film animasi garapan Jepang ini sukses bikin saya malu sendiri sebagai ibu. Seperti film animasi Jepang lainnya film ini memiliki kekhasanya sendiri dari segi alur, gambar dan sentuhan budayanya.
 
 Alurnya dibuat seperti penonton sedang diceritakan kembali Âoleh tokoh "yuki" mengenai ia dan orangtua nya. Cerita berawal tentang awal mula pertemuan ibunya yang seorang manusia biasa dengan manusia serigala yang akhirnya menjadi ayahnya. Tentang bagaimana bahagia nya pasangan "tak normal " itu ketika mengetahui istri nya hamil. Masalah mulai muncul dikehamilan pertama. Rasa khawatir apakah anak yang dikandung manusia atau serigala, sehingga memutuskan melahirkan sendiri dirumah dibantu suami. Juga bagaimana sang ayah berpayah-payah mencukupi kebutuhan keluarga dengan kondisi dirinya yang manusia serigala. Ditambah lagi kehamilan kedua disaat anak pertama masih sangat kecil, membuat sang ayah sangat bekerja keras hingga berujung pada kematian.
@@ -32,5 +31,4 @@ Diakhir film, akan ada lagu penutup tentang ibu... bahasa Jepang Sih, tapi lirik
 Agar jangan pernah lupa, kita yang saat ini adalah karena sentuhan cinta dan limpahan do'a dari ibu yang tidak pernah putus, yang akan kita berikan juga pada anak-anak kita...
 
 Bintara, 07032016
-
 Ummu Aisha
