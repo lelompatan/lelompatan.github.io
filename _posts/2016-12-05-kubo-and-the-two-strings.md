@@ -27,6 +27,6 @@ Inggil Windiarti
 
 Bintara
 
-Referensi:
+**Referensi**
 
 [Gambar utama](https://cdn0.vox-cdn.com/thumbor/TOLPh5PtvdiiOyYLrjVxVTlKXk4=/0x0:1280x720/1600x900/cdn0.vox-cdn.com/uploads/chorus_image/image/48668423/kubo.0.0.jpg)
