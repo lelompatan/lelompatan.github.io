@@ -31,4 +31,4 @@ Diakhir film, akan ada lagu penutup tentang ibu... bahasa Jepang Sih, tapi lirik
 
 Agar jangan pernah lupa, kita yang saat ini adalah karena sentuhan cinta dan limpahan do'a dari ibu yang tidak pernah putus, yang akan kita berikan juga pada anak-anak kita...
 
-Bintara, 07032016
+Bintara
