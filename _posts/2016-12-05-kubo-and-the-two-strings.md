@@ -4,6 +4,7 @@ title: Kubo And The Two Strings
 subtitle: Hidup adalah penerimaan tulus terhadap takdir
 authors: Ummu Aisha
 tags: [ulasan, film]
+bigimg: /img/kubo.jpg
 ---
 
 "Jika kau mau berkedip, berkediplah sekarang. Tak perduli dengan keanehan yang akan terjadi, jika kau merasa ragu, ataupun berpaling, maka pahlawan kita akan lenyap..."
@@ -25,3 +26,6 @@ Berat ya, begitulah. Akhir sebuah kisah, adalah awal kisah yang lain.
 Inggil Windiarti
 
 Bintara
+
+Referensi:
+[Gambar utama](https://cdn0.vox-cdn.com/thumbor/TOLPh5PtvdiiOyYLrjVxVTlKXk4=/0x0:1280x720/1600x900/cdn0.vox-cdn.com/uploads/chorus_image/image/48668423/kubo.0.0.jpg)
