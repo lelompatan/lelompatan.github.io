@@ -23,7 +23,7 @@ Adegan saat akhirnya ibu memilih pindah dan hidup di desa terpencil demi membesa
 
 Tentang uniknya Yuki, gadis kecil cantik setengah serigala. Sangat suka bermain dengan alam. Gesit, lincah, pemberani... tapi sangat ingin menjadi manusia normal. "Ibu, aku ingin sekali sekolah... pasti menyenangkan..." padahal dia masih sering tetiba berubah jadi serigala
 
-Tentang Ame, adik lelaki ÂYuki yang pemalu, pendiam dan cenderung penakut. Yang tak ingin sekolah. Alam adalah guru baginya hingga ia akhirnya menemukan jalan hidupnya sendiri...
+Tentang Ame, adik lelaki Yuki yang pemalu, pendiam dan cenderung penakut. Yang tak ingin sekolah. Alam adalah guru baginya hingga ia akhirnya menemukan jalan hidupnya sendiri...
 
 Intinya keseluruhan cerita berkisah tentang perjuangan sang ibu untuk anak-anaknya. Menurut saya layak ditonton untuk kita sebagai ibu untuk mengingatkan diri sendiri.
 
