@@ -4,6 +4,7 @@ title: Anak Serigala Yuki dan Ame
 subtitle: Perjuangan sang ibu untuk anak-anaknya
 authors: Ummu Aisha
 tags: [ulasan, film]
+bigimg: /img/yuki.jpg
 ---
 
 Film animasi garapan Jepang ini sukses bikin saya malu sendiri sebagai ibu. Seperti film animasi Jepang lainnya film ini memiliki kekhasanya sendiri dari segi alur, gambar dan sentuhan budayanya.
@@ -33,3 +34,7 @@ Diakhir film, akan ada lagu penutup tentang ibu... bahasa Jepang Sih, tapi lirik
 Agar jangan pernah lupa, kita yang saat ini adalah karena sentuhan cinta dan limpahan do'a dari ibu yang tidak pernah putus, yang akan kita berikan juga pada anak-anak kita...
 
 Bintara
+
+**Referensi**
+
+[Gambar utama](http://www.theforgottenlair.net/wp-content/uploads/2013/05/okami-kodomo-no-ame-to-yuki_2012-3-3150x1772.jpg)
