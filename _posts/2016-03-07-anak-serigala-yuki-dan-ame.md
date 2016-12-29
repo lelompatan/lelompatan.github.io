@@ -2,7 +2,7 @@
 layout: post
 title: Anak Serigala Yuki dan Ame
 subtitle: Perjuangan sang ibu untuk anak-anaknya
-author: Ummu Aisha
+authors: Ummu Aisha
 tags: [ulasan, film]
 ---
 Film animasi garapan Jepang ini sukses bikin saya malu sendiri sebagai ibu. Seperti film animasi Jepang lainnya film ini memiliki kekhasanya sendiri dari segi alur, gambar dan sentuhan budayanya.
