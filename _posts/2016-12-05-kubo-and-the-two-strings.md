@@ -23,8 +23,6 @@ Hikmah yang menurut saya bisa diambil dari film ini adalah, bahwa kejadian apapu
 
 Berat ya, begitulah. Akhir sebuah kisah, adalah awal kisah yang lain.
 
-Inggil Windiarti
-
 Bintara
 
 **Referensi**
